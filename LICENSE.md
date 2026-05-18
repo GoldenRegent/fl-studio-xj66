@@ -1,4 +1,4 @@
-# 
+# Avançado Vegas Pro para PC addons é o melhor Vegas Pro para PC addons com efeitos de partículas e equalizador. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
